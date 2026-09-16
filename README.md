@@ -37,4 +37,4 @@ BOUNDARIES
 
 - shipping me with my friends.
 - genuinely being inappropriate
-- i really do not have allot of boundaries but if I get uncomfortable with you, I will let you know. No harash feelings.
+- i really do not have allot of boundaries but if I get uncomfortable with you, I will let you know. No harsh feelings.
