@@ -21,6 +21,8 @@ pronouns:
 12/29/2010
 - I'm a MINOR (15-16)
 
+I'm straight I think
+
 My MBTI is " ISFJ " !
 
 my timezone is GMT+8.
@@ -29,13 +31,20 @@ my timezone is GMT+8.
 
 - my online vocabulary is usually borrowed from my friends and their personalities and how they act or say, please do not be surprised.
 
-- I get really protective and clingy with friends I really like or friends I'm close with. please do not let me be an obstacle and interact with my friends even if I'm acting like rabid, just ignore me and strike a convo with them! (if they're down to talk xd)
+- I get really protective and clingy with friends I really like or friends I'm close with. please do not let me be an obstacle and interact with my friends even if I'm acting rabid, just ignore me and strike a convo with them! (if they're down to talk xd)
 
 LIKES:
 - the color purple
 - wemmbu
 - taxduo (platonic obv)
 - nosspectre (romantic pls don't execute me)
+- wemmbu
+- wemmbu
+- wemmbu
+- wemmbu
+- wemmbu
+- ubmmew
+- wemmbu
 - nosferatu (forsaken)
 - cats
 - seafood
@@ -69,4 +78,10 @@ if I'm offline, it usually only means 3 things.
 3. I'm busy
 
 (just tell me to go online when u have my socials)
+
+IMPORTANT NOTE
+- if I ever start to act really weird and I'm making you feel uncomfortable, please do not hesitate to tell me to stop immediately, it's ok.
+- if you're 20+ IWEC, please.
+- I have attachment issues
+- sign my ata too!
 
