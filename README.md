@@ -2,6 +2,8 @@
 
 C+H & Interact with me freely, I do not bite. (W2i if I'm afk.)
 
+I can usually be spotted in the UU area above cave, below bakery, or at my friends spot! (below Ninjago area)
+
 Socials:
 - IG : zelar1um
 - TikTok (inactive) : zelar1um
