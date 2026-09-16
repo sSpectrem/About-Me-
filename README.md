@@ -45,15 +45,24 @@ LIKES:
 - wemmbu
 - ubmmew
 - wemmbu
+- arachn1d_
+- arachn1d_
+- arachn1d_
+- arachn1d_
+- arachn1d_
+- eggchan
+- arachn1d_
 - nosferatu (forsaken)
 - cats
 - seafood
 - DONUTS I LOVE DONUTS BRO
 - artful (die of death)
+- wemmbu
 
 DISLIKES:
 - cockroaches
 - ragebaiters, PLEASE DO NOT RAGEBAIT ME IM ACTUALLY GONNA SCREAM SO BAD
+- arachn1d_ he's so bad bro
 
 BOUNDARIES
 
