@@ -2,11 +2,21 @@
 
 C+H & Interact with me freely, I do not bite. (W2i if I'm afk.)
 
+Socials:
+IG : zelar1um
+TikTok (inactive) : zelar1um
+Discord : zelar1um
+
+u can ask for my socials and I will provide it if I have it, I mostly go by "zelar1um" on every account I make xd
+
 Users I go by:
 - zelar
 - zel
 - spectre
 - sam
+
+pronouns:
+- Any
 
 12/29/2010
 - I'm a MINOR (15-16)
@@ -30,11 +40,33 @@ LIKES:
 - cats
 - seafood
 - DONUTS I LOVE DONUTS BRO
+- artful (die of death)
 
 DISLIKES:
+- cockroaches
+- ragebaiters, PLEASE DO NOT RAGEBAIT ME IM ACTUALLY GONNA SCREAM SO BAD
 
 BOUNDARIES
 
 - shipping me with my friends.
 - genuinely being inappropriate
 - i really do not have allot of boundaries but if I get uncomfortable with you, I will let you know. No harsh feelings.
+
+My Fandoms!! (Multifandom)
+- Unstable Universe
+- Die of Death
+- Forsaken
+- SCP:SL
+- DBD
+- HSR
+- Roblox
+- Clash of Critters
+- probably more I can't remember
+
+if I'm offline, it usually only means 3 things.
+1. I'm sleeping
+2. I'm at school
+3. I'm busy
+
+(just tell me to go online when u have my socials)
+
