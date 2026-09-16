@@ -3,9 +3,9 @@
 C+H & Interact with me freely, I do not bite. (W2i if I'm afk.)
 
 Socials:
-IG : zelar1um
-TikTok (inactive) : zelar1um
-Discord : zelar1um
+- IG : zelar1um
+- TikTok (inactive) : zelar1um
+- Discord : zelar1um
 
 u can ask for my socials and I will provide it if I have it, I mostly go by "zelar1um" on every account I make xd
 
