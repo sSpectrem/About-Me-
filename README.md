@@ -18,7 +18,7 @@ Users I go by:
 - sam
 
 pronouns:
-- Any
+- Any OR She/Her 🐢
 
 12/29/2010
 - I'm a MINOR (15-16)
@@ -69,7 +69,7 @@ DISLIKES:
 BOUNDARIES
 
 - shipping me with my friends.
-- genuinely being inappropriate
+- suggestive topics
 - i really do not have allot of boundaries but if I get uncomfortable with you, I will let you know. No harsh feelings.
 
 My Fandoms!! (Multifandom)
