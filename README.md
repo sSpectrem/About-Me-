@@ -39,7 +39,6 @@ LIKES:
 - the color purple
 - wemmbu
 - taxduo (platonic obv)
-- nosspectre (romantic pls don't execute me)
 - wemmbu
 - wemmbu
 - wemmbu
@@ -75,13 +74,14 @@ BOUNDARIES
 My Fandoms!! (Multifandom)
 - Unstable Universe
 - Die of Death
-- Forsaken
 - SCP:SL
 - DBD
 - HSR
 - Roblox
 - Clash of Critters
 - probably more I can't remember
+
+IM NOT IN THE FORSAKEN FANDOM ANYMORE AND I DELETED ALL MY FORSAKEN RELATED SKINS!!! (except spectre cuz they tuff)
 
 if I'm offline, it usually only means 3 things.
 1. I'm sleeping
