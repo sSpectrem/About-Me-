@@ -60,6 +60,8 @@ LIKES:
 - artful (die of death)
 - wemmbu
 
+I think I like wemmbu
+
 DISLIKES:
 - cockroaches
 - ragebaiters, PLEASE DO NOT RAGEBAIT ME IM ACTUALLY GONNA SCREAM SO BAD
