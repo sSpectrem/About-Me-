@@ -98,3 +98,4 @@ IMPORTANT NOTE
 - I have attachment issues
 - sign my ata too!
 
+off topic but I realized that 99% of friends are close with are boys so I look like a slut, girls bmf pls I'm tired of this mistreatment 🥹🥹
