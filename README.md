@@ -94,7 +94,7 @@ if I'm offline, it usually only means 3 things.
 
 IMPORTANT NOTE
 - if I ever start to act really weird and I'm making you feel uncomfortable, please do not hesitate to tell me to stop immediately, it's ok.
-- if you're 20+ IWEC, please.
+- if you're 21+ IWEC, please.
 - I have attachment issues
 - sign my ata too!
 
