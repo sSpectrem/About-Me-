@@ -69,7 +69,7 @@ DISLIKES:
 
 BOUNDARIES
 
-- shipping me with my friends.
+- shipping me with my friends. (unless you're a really close friend of me, u can disregard this boundary because I trust you! <3 )
 - suggestive topics
 - i really do not have allot of boundaries but if I get uncomfortable with you, I will let you know. No harsh feelings.
 
