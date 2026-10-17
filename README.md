@@ -66,14 +66,14 @@ LIKES:
 - Smi77y
 - Layze
 - eggs
-- Movies!(please suggest me movies in my ata or strawpage <3)
+- Movies! (please suggest me movies in my ata or strawpage <3)
 - jewelry (if u buy me jewelry irl I will literally give you the biggest hug ever)
 
 DISLIKES:
 - cockroaches
 - ragebaiters, PLEASE DO NOT RAGEBAIT ME IM ACTUALLY GONNA SCREAM SO BAD
 - arachn1d_ he's so bad bro
-- pushing me to do thinks I do not like
+- pushing me to do things I do not like
 
 BOUNDARIES
 
