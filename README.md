@@ -58,10 +58,10 @@ LIKES:
 - arachn1d_
 - nosferatu (forsaken)
 - spectre (forsaken)
-- ugh no shame admitting I like nosspectre yaoi pls don't burn me alive at a stake
+- ugh no shame admitting I like nosspectre yaoi pls don't burn me alive at a stake (snow u don't see this okay pls don't kill me)
 - cats
 - seafood
-- DONUTS I LOVE DONUTS BRO
+- DONUTS I LOVE DONUTS BRO (FRICK U SNOW FOR HATING IT🤬)
 - artful (die of death)
 - Smi77y
 - Layze
@@ -103,4 +103,4 @@ if I'm offline, it usually only means 3 things.
 
 off topic but I realized that 99% of friends I'm close with are boys so I look like a slut, girls bmf pls I'm tired of this mistreatment 🥹🥹
 
-I sincerely love all my friends equally, no one is above nor below. I also love them platonically I feel like it's important to mention this lolol
+I sincerely love all my friends equally, no one is above nor below. I also love them platonically I feel like it's important to mention this lolol (unless 👀)
