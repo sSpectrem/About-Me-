@@ -54,6 +54,8 @@ LIKES:
 - wemmbu
 - taxduo (platonic obv)
 - airsoft (although I don't play.)
+- milsim (don't play)
+- a bit of scp
 - eggchan
 - arachn1d_
 - nosferatu (forsaken)
@@ -90,14 +92,17 @@ My Fandoms!! (Multifandom)
 - Roblox
 - Clash of Critters
 - Forsaken
-- The Mandalorian (specifically only Mandalorian, not the entirety of star wars unless u want me to larp)
+- Guts and Blackpowder (Roblox)
 
-hello I'm back in forkasaknen fnaodm
+My Larpdoms
+- The Mandalorian
+- Extermination (Roblox)
 
-if I'm offline, it usually only means 3 things.
+if I'm offline, it usually only means ⁴ things.
 1. I'm sleeping
 2. I'm at school
 3. I'm busy
+4. I'm too lazy to hop on
 
 (just tell me to go online when u have my socials)
 
