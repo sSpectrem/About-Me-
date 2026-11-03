@@ -87,7 +87,6 @@ My Fandoms!! (Multifandom)
 - Unstable Universe
 - Die of Death
 - SCP:SL
-- DBD
 - HSR
 - Roblox
 - Clash of Critters
@@ -97,6 +96,7 @@ My Fandoms!! (Multifandom)
 My Larpdoms
 - The Mandalorian
 - Extermination (Roblox)
+- Dead by Daylight
 
 if I'm offline, it usually only means ⁴ things.
 1. I'm sleeping
